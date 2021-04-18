@@ -1,1 +1,0 @@
-# jdr my home page
